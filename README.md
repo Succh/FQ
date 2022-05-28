@@ -37,5 +37,5 @@
 - Google云盘：提供15GB的免费存储空间，可以储存一些资料文件，https:/www.google.com/intl/zh-CN_ALL/drive/
 
 
-### 靠谱奈飞\迪士尼合租【95折KJXL】：https://www.ihezu.cn/?sid=dDpmVf
+### 靠谱奈飞\迪士尼合租 https://ihz.run/?sid=VRvyut
 - 奈飞好剧推荐：https://smilesandy.com/netflix/
